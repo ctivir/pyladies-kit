@@ -61,6 +61,13 @@ if personal preferences change.
 
 ## Historical Winners
 
+### 2025
+
+* [Katie McLaughli](https://www.linkedin.com/in/glasnt/)
+* [Karolina Surma](https://www.linkedin.com/in/karolina-surma-950452b7/)
+* [Cecília Tivir] (https://www.linkedin.com/in/ctivir/)
+*
+
 ### 2024
 
 * [Abigail Mesrenyame Dogbe](https://www.linkedin.com/in/abigail-mesrenyame-dogbe)
